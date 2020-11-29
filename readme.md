@@ -1,5 +1,5 @@
 [ingredients](https://github.com/shafhad/jalebi/blob/main/ingredients.md)\
-[recipe](https://github.com/shafhad/jalebi/blob/main/recipe.md)
+[recipe](https://github.com/shafhad/jalebi/blob/main/recipe.md)\
 Jalebi, also known as Jilapi, zulbia, mushabak and zalabia, is a Middle Eastern sweet snack popular all over South and Western Asia. It is made by deep-frying maida flour (plain flour or all-purpose flour) batter in pretzel or circular shapes, which are then soaked in sugar syrup.
 
 This dessert can be served warm or cold. They have a somewhat chewy texture with a crystallized sugary exterior coating. Citric acid or lime juice is sometimes added to the syrup, as well as rose water. Jalebi is eaten with curd or rabri (North India) along with optional other flavours such as kewra (scented water).
