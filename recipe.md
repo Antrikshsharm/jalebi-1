@@ -1,16 +1,7 @@
-Method
-For the sugar syrup
-1. Combine the sugar with 1/3rd cup of water together in a deep pan and cook on a medium flame till the sugar dissolves and is of 1 thread consistency, while stirring continuously. Keep the syrup warm.
-2. Combine the saffron with warm milk and rub it lightly till the saffron dissolves.
-3. Add the rose water to it and mix well. Add this saffron mixture to the sugar syrup and mix well. Keep aside.
+Step 1 Prepare the Jalebi batter and let it ferment overnight To make this easy Jalebi recipe, mix together all-purpose flour, cornflour and baking soda in a bowl. Now, add ghee and food colour in the above mixture. To make a thick batter add hung curd and water. Mix well until it is thick but has a slightly flowing consistency. Keep it aside for 8-10 hours to ferment. This step is important to give that unique "khatta" taste to Jalebi. To make the sugar syrup, heat water in a pan over medium flame. Add sugar and mix until fully dissolved. Simmer the syrup until it attains one string consistency. Add saffron, cardamom powder and rose essence. Stir well.
 
-How to proceed
+Step 2 Deep fry the Jalebis Now, heat oil in a pan over medium flame for deep frying. Fill the jalebi batter in a muslin cloth and pierce a small hole in the cloth. Squeeze the muslin cloth to make concentric circles. Move from inside to outside to make perfect circles. Fry till jalebis are crisp and golden.
 
-To make instant jalebi, sieve the flour with baking powder and keep aside
-.
-Combine the curds with 1/3 cup of water in a bowl and whisk well.Add the flour and make a thick batter, making sure that no lumps remain. Keep aside.
-Heat the ghee in a broad saucepan (the pan should be approximately 25 mm. (1") deep).
-Fill the jalebi batter into a piping bag with a single hole nozzle. Alternatively, use a plastic bottle with a small hole in the lid to fill the batter.
-Press out round whirls of the batter into the hot ghee working closely from outside to the centre of the whirl [approximately 50 mm. (2") diameter].
-Deep-fry the jalebis till golden brown from both the sides and transfer immediately into the warm sugar syrup.
-Drain after 2 to 3 minutes and serve the instant jalebis hot sprinkled with cardamom powder.
+Step 3 Soak the Jalebis in sugar syrup and 2-3 minutes and serve warm with Rabri Soak the jalebis in sugar syrup for 2-3 minutes. Ensure that the sugar syrup is warm and not very hot. Now, remove from the syrup and place on a tray lined with butter paper or foil. Decorate with silver foil (optional) and serve the jalebis hot, warm or at room temperature with creamy Rabri. Note: To make the jalebi even more delicious, add a little bit of ghee to the batter, this will give your jalebi that perfect aroma. To the crispy Jalebi, don't forget to ferment the batter overnight.
+
+Tips The most important part of making Jalebi at home is to have the right consistency of your Jalebi batter. It should not be too thin or thick. Make sure your batter is of flowing co... Traditionally, the Jalebi batter is fermented for 10-12 hours in warmth. But, if you live in a cold place, you must ferment it for 24 hours. While frying the Jalebis, make sure the flame is on low. High heat will leave it uncooked from the inside. This will also give you ample time to give your Jalebis the best shape. For Instant Jalebis, mix together all-purpose flour, corn flour, and a little turmeric. Then, add curd and water to it and whisk well in one direction to make a smooth batter.
